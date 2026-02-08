@@ -2,8 +2,9 @@
 <a href="https://hits.sh/github.com/RadioheadLover/hits/"><img alt="Hits" src="https://hits.sh/github.com/RadioheadLover/hits.svg?label=woowies&color=9f9f9f"/></a>
 
 <p align="center"
-<p><img src="https://github.com/user-attachments/assets/f3fc3c0b-225e-4758-a4fb-d129c1d80ad5" height=100% alt="0c29f0f8f4122e8379a4158298b7fa49"></p>
-<img width="1024" height="83" alt="IMG_9423" src="https://github.com/user-attachments/assets/5b93491e-accf-4350-8498-3a9a7f618c32" />
+<p><img src="https://files.catbox.moe/ee3u5x.jpg" height="300" alt="0c29f0f8f4122e8379a4158298b7fa49"></p>
+<p align="center"
+<p><img src="https://files.catbox.moe/rhz19t.webp" alt="https://files.catbox.moe/0aaqnb.jpg"></p>
 
 
 <p align="center"
