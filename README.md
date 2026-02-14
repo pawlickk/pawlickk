@@ -8,7 +8,7 @@
 
 <p align="center"
 
- 𑣲 ‎‎[shared rentry](https://rentry.co/ger-ita-pan) ✘ [rentry](https://rentry.co/Cathedrales) ✘ [alt rentry](https://rentry.co/RiddledRiddle) ✘ [straw](https://pawlick.straw.page) ✘ [ata](https://pawlick.atabook.org/) ✘ [pronouns page](https://en.pronouns.page/@pawlick) .ᐟ
+ 𑣲 ‎‎[shared rentry](https://rentry.co/ger-ita-pan) ✘ [rentry](https://rentry.co/Cathedrales) ✘ [straw](https://pawlick.straw.page) ✘ [ata](https://pawlick.atabook.org/) ✘ [pronouns page](https://en.pronouns.page/@pawlick) .ᐟ
 
 <p align="center"
 
