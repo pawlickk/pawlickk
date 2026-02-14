@@ -6,6 +6,9 @@
 <p align="center"
 <p><img src="https://files.catbox.moe/rhz19t.webp" alt="https://files.catbox.moe/0aaqnb.jpg"></p>
 
+<p align="center"
+
+ 𑣲 ‎‎[shared rentry](https://rentry.co/ger-ita-pan) ✘ [rentry](https://rentry.co/Cathedrales) ✘ [straw](https://pawlick.straw.page) ✘ [ata](https://pawlick.atabook.org/) ✘ [pronouns page](https://en.pronouns.page/@pawlick) .ᐟ
 
 <p align="center"
 
