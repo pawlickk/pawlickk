@@ -3,7 +3,7 @@
 
 <p align="center"
  
-[/!\ call out](https://docs.google.com/document/d/1lcvPbaeNmeHp9S-HlUh6yykSf6OA_X0vjw36SelCuKE/edit?tab=t.0)
+[/!\ sal callout](https://docs.google.com/document/d/1lcvPbaeNmeHp9S-HlUh6yykSf6OA_X0vjw36SelCuKE/edit?tab=t.0)
 
 <p align="center"
 <p><img src="https://files.catbox.moe/ee3u5x.jpg" height="300" alt="0c29f0f8f4122e8379a4158298b7fa49"></p>
