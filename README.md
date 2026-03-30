@@ -5,7 +5,7 @@
 /!\ ppl who call themselves anti-harassment yet talk shit about me behing my back not even trying to hide it arent anti-harassment just immature asf /aimed
 
 <p align="center"
-<p><img src="https://files.catbox.moe/ee3u5x.jpg" height="300" alt="0c29f0f8f4122e8379a4158298b7fa49"></p>
+<p><img src="https://files.catbox.moe/r5rh91.png" height="300"></p>
 <p align="center"
 <p><img src="https://64.media.tumblr.com/bdfed212d092ee15782c257fd61c83e7/255d765ef3a65176-c1/s400x600/cb8704c740b087b783dfb85d63584cf600ff6a6a.gifv"></p>
 
