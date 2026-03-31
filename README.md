@@ -2,7 +2,7 @@
 <a href="https://hits.sh/github.com/RadioheadLover/hits/"><img alt="Hits" src="https://hits.sh/github.com/RadioheadLover/hits.svg?label=woowies&color=9f9f9f"/></a>
 
 <p align="center">
-/!\ ppl who call themselves anti-harassment yet talk shit about me behing my back not even trying to hide it arent anti-harassment just immature asf /aimed
+/!\ ppl who call themselves anti-harassment yet talk shit about me behind my back not even trying to hide it arent anti-harassment just immature asf /aimed
 
 <p align="center"
 <p><img src="https://files.catbox.moe/r5rh91.png" height="300"></p>
