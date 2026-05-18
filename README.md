@@ -1,6 +1,8 @@
 <p align="center">
 <a href="https://hits.sh/github.com/RadioheadLover/hits/"><img alt="Hits" src="https://hits.sh/github.com/RadioheadLover/hits.svg?label=woowies&color=9f9f9f"/></a>
-
+ <p align="center"
+ 
+ i know my name is censored and yes i can talk pt just hates me growlss
 <p align="center"
 <p><img src= "https://i.postimg.cc/FR8YYSTs/Sans-titre-136-20260511171708.png" height="370"></p>
 <p align="center"
