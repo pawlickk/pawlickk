@@ -5,7 +5,7 @@
   
   i know my name is censored and yes i can talk pt just hates me growlss
 <p align="center"
-<p><img src= "https://i.postimg.cc/FR8YYSTs/Sans-titre-136-20260511171708.png" height="370"></p>
+<p><img src= "https://i.postimg.cc/MpbH2Fwv/Sans-titre-158-20260607001008.png" height="370"></p>
 <p align="center"
 <p><img src="https://64.media.tumblr.com/bdfed212d092ee15782c257fd61c83e7/255d765ef3a65176-c1/s400x600/cb8704c740b087b783dfb85d63584cf600ff6a6a.gifv"></p>
 
