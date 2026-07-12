@@ -11,7 +11,7 @@
 
 <p align="center"
 
- 𑣲 ‎‎[shared rentry](https://rentry.co/puplamb) ✘ [rentry](https://rentry.co/GourdyHolIoway) ✘ [rentry2](https://rentry.co/konjon) ✘ [straw](https://pawlick.straw.page) ✘ [ata](https://pawlick.atabook.org/) ✘ [pronouns page](https://pronouns.cc/@pawlick) .ᐟ
+ 𑣲 ‎‎[shared rentry](https://rentry.co/puplamb) ✘ [rentry](https://rentry.co/GourdyHolIoway) ✘ [rentry2](https://rentry.co/konjon) ✘ [straw](https://pawlick.straw.page) ✘ [ata](https://pawing.atabook.org/) ✘ [pronouns page](https://pronouns.cc/@pawlick) .ᐟ
 <p align="center"
   
  /!\  busy status probably means im asleep 
