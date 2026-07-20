@@ -3,7 +3,7 @@
  
 <p align="center"
   
-  i know my name is censored and yes i can talk pt just hates me growlss
+trying to recover and get away from darkship, please leave me alone
 <p align="center"
 <p><img src= "https://i.postimg.cc/MpbH2Fwv/Sans-titre-158-20260607001008.png" height="370"></p>
 <p align="center"
