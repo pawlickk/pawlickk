@@ -2,6 +2,8 @@
 <a href="https://hits.sh/github.com/RadioheadLover/hits/"><img alt="Hits" src="https://hits.sh/github.com/RadioheadLover/hits.svg?label=woowies&color=9f9f9f"/></a>
  
 <p align="center"
+
+yes i know i am censored,, pt hates me
   
 <p align="center"
 <p><img src= "https://i.postimg.cc/FR8YYSTs/Sans-titre-136-20260511171708.png" height="370"></p>
@@ -13,7 +15,8 @@
  𑣲 ‎‎[shared rentry](https://rentry.co/puplamb) ✘ [rentry](https://rentry.co/GourdyHolIoway) ✘ [straw](https://eatswalls.straw.page) ✘ [ata](https://pawing.atabook.org/) ✘ [pronouns page](https://pronouns.cc/@pawlick) .ᐟ
 
 <p align="center"
- /!\  busy status probably means im asleep 
+ 
+/!\  busy status probably means im asleep 
  
 <p align="center"
 
