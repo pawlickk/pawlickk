@@ -10,9 +10,11 @@
 
 <p align="center"
 
+ 𑣲 ‎‎[shared rentry](https://rentry.co/puplamb) ✘ [rentry](https://rentry.co/GourdyHolIoway) ✘ [straw](https://eatswalls.straw.page) ✘ [ata](https://pawing.atabook.org/) ✘ [pronouns page](https://pronouns.cc/@pawlick) .ᐟ
 
-  
+<p align="center"
  /!\  busy status probably means im asleep 
+ 
 <p align="center"
 
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=31ompml63x2u743z7qwy5awdbgva&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&bar_color=3b3b3b&bar_color_cover=false)](https://github.com/kittinan/spotify-github-profile)
