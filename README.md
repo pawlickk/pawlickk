@@ -12,7 +12,7 @@ yes i know i am censored,, pt hates me
 
 <p align="center"
 
- 𑣲 ‎‎[shared rentry](https://rentry.co/puplamb) ✘ [rentry](https://rentry.co/GourdyHolIoway) ✘ [straw](https://eatswalls.straw.page) ✘ [ata](https://pawing.atabook.org/) ✘ [pronouns page](https://pronouns.cc/@pawlick) .ᐟ
+ 𑣲 ‎‎[shared rentry](https://rentry.co/puplamb) ✘ [rentry](https://rentry.co/GourdyHolIoway) ✘ [straw](https://pawlick.straw.page) ✘ [ata](https://pawing.atabook.org/) ✘ [pronouns page](https://pronouns.cc/@pawlick) .ᐟ
 
 <p align="center"
  
