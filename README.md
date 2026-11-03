@@ -3,7 +3,7 @@
 
 <p align="center"
 
-the only thing i want to state because of @snowyrescue and @SOUL-VESTER readmes is no my skin is not the map flag nor the aam. Even if i am AAM i do not have a skin of the flag, the skin on the screenshot is an alt of twink flag. And i didnt use the most common one because its just ugly? And i found it on pinterst not tumblr
+ the only thing i want to state because of @snowyrescue and @SOUL-SHIELD readmes is no my skin is not the map flag nor the aam. Even if i am AAM i do not have a skin of the flag, the skin on the screenshot is an alt of twink flag. And i didnt use the most common one because its just ugly? And i found it on pinterst not tumblr
 
 <p align="center"
 
