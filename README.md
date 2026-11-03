@@ -9,8 +9,10 @@ the only thing i want to state because of @snowyrescue and @SOUL-VESTER readmes 
 
 <p><img src= "https://i.postimg.cc/0NcFNQyW/e258091e7bb5b67cef93f52470c361b6.webp" height="100"></p
 
-this is the iris twink flag, i cant find the normal (alt) twink flag but the colors are exactly the same, infact the flags are the same the iris one just have these semi transparent white waves on the pink and yellow and on the normal (alt) flag they werent here. Plus the colors in this flag and map flag arent even in the same order.                                                                                                 
-  
+<p align="center"
+
+this is the iris twink flag, i cant find the normal (alt) twink flag but the colors are exactly the same, infact the flags are the same the iris one just have these semi transparent white waves on the pink and yellow and on the normal (alt) flag they werent here. Plus the colors in this flag and map flag arent even in the same order. 
+
 <p align="center"
 <p><img src= "https://i.postimg.cc/FR8YYSTs/Sans-titre-136-20260511171708.png" height="370"></p>
 <p align="center"
