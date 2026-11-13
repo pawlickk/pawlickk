@@ -29,4 +29,6 @@
 <br> - 18:24[Pred but never racism] Rmbr the guy i said pawlick had ties to and the same guy wld flirt with minors and was actively attracted to younger kids
  <br> I never was friend with someone like that, im not even sure WHO you are talking about. You even mentionned you got this from someone involved with me when they were 15 and theyre 16 now, i know NO ONE that fit this
 
+ <br> i DID know about the account itself but i thought it was only about darkship, i DIDNT KNOW about meowbahh
+
  <br> - i am no longer associate with maggot and will not be speaking on any further info abt wlf so leave me alone
