@@ -7,7 +7,10 @@
 <p align="center"
 <p><img src="https://64.media.tumblr.com/bdfed212d092ee15782c257fd61c83e7/255d765ef3a65176-c1/s400x600/cb8704c740b087b783dfb85d63584cf600ff6a6a.gifv"></p>
 
-we have a hard time telling fiction and reality apart as well as our dreams and reality apart because of our meds. Please be patient as we can be rather slow sometimes
+<p align="center"
+
+ we have a hard time telling fiction and reality apart as well as our dreams and reality apart because of our meds. Please be patient as we can be rather slow sometimes
+ 
 <p align="center"
 
  𑣲 ‎‎[shared rentry](https://rentry.co/puplamb) ✘ [rentry](https://rentry.co/GourdyHolIoway) ✘ [straw](https://pawlick.straw.page) ✘ [ata](https://pawing.atabook.org/) ✘ [pronouns page](https://pronouns.cc/@pawlick) .ᐟ
